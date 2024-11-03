@@ -1,4 +1,4 @@
-## Holi personites bellas de la creación
+## Holi personites bellas de la creación 🌹✨
 
 <!--
 **Este es el servidor de minecraft al que espero le den mucho cariño si estas leyendo esto es porque probablemente eres alguien de confianza
